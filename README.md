@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kyle Parrish (@kparrish92).
-- ✨ I'm a PhD Student at Rutgers University in the Department of Spanish and Portuguese
+- ✨ I'm a Post Doctoral Researcher at Goethe University Frankfurt.
 - 👀 I’m interested in the phonetics and phonology of third langauges 
 - 📫 How to reach me: kyle.parrish@rutgers.edu
 
